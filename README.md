@@ -1,0 +1,2 @@
+# projeto39
+qwertyuiopasdfghjklçzxcvbnm
